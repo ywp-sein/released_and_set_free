@@ -17,4 +17,4 @@ I burn to hallow Your name with all that I am.
 
 ---
 
-[Back to top](#) | [Back to Home](../README.md) 
+[Back to top](#)

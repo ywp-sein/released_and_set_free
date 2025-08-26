@@ -30,4 +30,4 @@ Come to Truth.
 
 ---
 
-[Back to top](#) | [Back to Home](../README.md) 
+[Back to top](#)

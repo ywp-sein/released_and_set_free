@@ -24,4 +24,4 @@ At that moment, the answers you receive to your questions are truly the truth.
 
 ---
 
-[Back to top](#) | [Back to Home](../README.md) 
+[Back to top](#)

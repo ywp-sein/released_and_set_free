@@ -9,4 +9,4 @@ Why does this happen? Because some only want to escape their situation—they do
 
 ---
 
-[Back to top](#) | [Back to Home](../README.md) 
+[Back to top](#)

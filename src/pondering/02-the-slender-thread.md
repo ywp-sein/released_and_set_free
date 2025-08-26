@@ -41,4 +41,4 @@ And the ultimate reason we can do good is because Christ lives in us— is becau
 
 ---
 
-[Back to top](#) | [Back to Home](../README.md) 
+[Back to top](#)

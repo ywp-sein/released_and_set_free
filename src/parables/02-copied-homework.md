@@ -36,4 +36,4 @@ It couldn’t be easier or more joyful.
 
 ---
 
-[Back to top](#) | [Back to Home](../README.md) 
+[Back to top](#)

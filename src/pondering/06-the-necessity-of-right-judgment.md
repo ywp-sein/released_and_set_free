@@ -11,4 +11,4 @@ We are constantly discerning what is true and what is false; this, in itself, is
 
 ---
 
-[Back to top](#) | [Back to Home](../README.md) 
+[Back to top](#)

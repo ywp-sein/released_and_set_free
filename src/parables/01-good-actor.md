@@ -40,4 +40,4 @@ and I pray I may see you at the celebration feast.
 
 ---
 
-[Back to top](#) | [Back to Home](../README.md) 
+[Back to top](#)

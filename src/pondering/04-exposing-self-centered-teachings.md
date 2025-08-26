@@ -31,4 +31,4 @@ After all, His will is always accomplished.
 
 ---
 
-[Back to top](#) | [Back to Home](../README.md) 
+[Back to top](#)

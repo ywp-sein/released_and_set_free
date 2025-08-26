@@ -21,4 +21,4 @@ When we turn to Him, we are no longer trapped in self-condemnation (Romans 8:1) 
 
 ---
 
-[Back to top](#) | [Back to Home](../README.md) 
+[Back to top](#)

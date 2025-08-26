@@ -37,4 +37,4 @@ With my loving Father God, all things are possible.
 
 ---
 
-[Back to top](#) | [Back to Home](../README.md) 
+[Back to top](#)

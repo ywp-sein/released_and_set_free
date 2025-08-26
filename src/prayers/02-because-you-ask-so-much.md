@@ -54,4 +54,4 @@ It feels almost like getting a sugar rush.
 
 ---
 
-[Back to top](#) | [Back to Home](../README.md) 
+[Back to top](#)

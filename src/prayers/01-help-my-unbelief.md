@@ -27,4 +27,4 @@ P.S. I have to say that this prayer has a very interesting recursive logic.
 
 ---
 
-[Back to top](#) | [Back to Home](../README.md) 
+[Back to top](#)

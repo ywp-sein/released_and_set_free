@@ -29,4 +29,4 @@ May the grace of our Lord Jesus Christ always fill our hearts!
 
 ---
 
-[Back to top](#) | [Back to Home](../README.md) 
+[Back to top](#)
