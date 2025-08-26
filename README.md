@@ -6,7 +6,7 @@ his neck was put in irons, till what he foretold came to pass,
 till the word of the Lord proved him true. The king sent and released him,
 the ruler of peoples set him free.
 
-## Table of contents
+<!-- ## Table of contents
 
 - Pondering 
     - [The Power of True Repentance](pondering/01-the-power-of-true-repentance.md)
@@ -31,4 +31,4 @@ the ruler of peoples set him free.
 
 ---
 
-[Back to top](#)
+[Back to top](#) -->
