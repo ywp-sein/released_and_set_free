@@ -15,10 +15,10 @@ I have cried out,<br>
 and I have even prayed such prayers.
 
 I have asked the Lord:<br>
->The things You want me to do,
-please give me sufficient faith and courage to do them;<br>
-the things You do not want me to do,
-please remove them from my heart—may they not even enter it.
+>The things You want me to do,<br>
+>please give me sufficient faith and courage to do them;<br>
+>the things You do not want me to do,<br>
+>please remove them from my heart—may they not even enter it.
 
 I believe in my prayer, and I also believe this is a prayer taught by the Holy Spirit.
 For the Lord has given me sufficient faith and courage, to believe in this very prayer I prayed as the first step.
