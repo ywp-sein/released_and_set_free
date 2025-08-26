@@ -1,5 +1,7 @@
 # Suffering
 
+
+
 If suffering hasn't purified my heart,<br>
 please let me remain in it.<br>
 I don't want to seek the fleeting spark in the darkness;<br>
@@ -14,6 +16,8 @@ If suffering is the path I am called to walk,<br>
 Please teach me how to find joy within it.<br>
 I don’t want to veil Your glory<br>
 I burn to hallow Your name with all that I am.
+
+*Note: By the grace of God, these words were written, each born from a different season of my suffering.*
 
 ---
 
