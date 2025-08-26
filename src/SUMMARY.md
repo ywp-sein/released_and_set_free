@@ -14,7 +14,7 @@
 - [Poem](poem/README.md)
     - [Suffering](poem/01-suffering)
     - [Surpassing Expectation](poem/02-surpassing-expectation)
-- [Parables](poem/README.md)
+- [Parables](parables/README.md)
     - [Good Actor](parables/01-good-actor.md)
     - [Copied Homework](parables/02-copied-homework.md)
 - [Prayers](prayers/README.md)
