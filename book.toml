@@ -9,6 +9,7 @@ edition = "2018"
 [output.wordcount]
 
 [output.html]
+optional = true
 
 [output.html.search]
 limit-results = 20
