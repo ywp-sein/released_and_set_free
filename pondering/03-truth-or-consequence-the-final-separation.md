@@ -27,3 +27,7 @@ The pricetag of rejection is increasingâ€”and it is irreversible (Hebrews 12:25â
 Come to Truth.
 
 </details>
+
+---
+
+[Back to top](#) | [Back to Home](../README.md) 

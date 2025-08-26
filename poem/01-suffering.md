@@ -14,3 +14,7 @@ If suffering is the path I am called to walk,<br>
 Please teach me how to find joy within it.<br>
 I don’t want to veil Your glory<br>
 I burn to hallow Your name with all that I am.
+
+---
+
+[Back to top](#) | [Back to Home](../README.md) 

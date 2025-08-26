@@ -24,3 +24,7 @@ I believe in my prayer, and I also believe this is a prayer taught by the Holy S
 For the Lord has given me sufficient faith and courage, to believe in this very prayer I prayed as the first step.
 
 P.S. I have to say that this prayer has a very interesting recursive logic.
+
+---
+
+[Back to top](#) | [Back to Home](../README.md) 

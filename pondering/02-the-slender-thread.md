@@ -38,3 +38,7 @@ And the ultimate reason we can do good is because Christ lives in us— is becau
 “Facts don’t care about your feelings,” says Ben Shapiro— but Truth does. Truth cares for the heart, and always—always—for the heart. (John 14:6; Psalm 34:18)
 
 </details>
+
+---
+
+[Back to top](#) | [Back to Home](../README.md) 

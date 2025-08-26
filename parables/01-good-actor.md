@@ -37,3 +37,7 @@ I am already looking forward to the end of the performance,
 to celebrate together with all the good actors and with our God at the grand banquet.
 I hope your name will also be listed in the end credits,
 and I pray I may see you at the celebration feast.
+
+---
+
+[Back to top](#) | [Back to Home](../README.md) 

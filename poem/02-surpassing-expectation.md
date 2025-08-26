@@ -34,3 +34,7 @@ and that is His amazing grace.
 And so, I believe, and therefore I speak:<br>
 I have them all already, through faith in Him.<br>
 With my loving Father God, all things are possible.
+
+---
+
+[Back to top](#) | [Back to Home](../README.md) 

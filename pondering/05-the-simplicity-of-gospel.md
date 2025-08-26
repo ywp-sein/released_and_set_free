@@ -37,3 +37,7 @@ This is why He calls us to childlike faith (Matthew 18:3; Mark 10:15).
 
 
 </details>
+
+---
+
+[Back to top](#) | [Back to Home](../README.md) 

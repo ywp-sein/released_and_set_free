@@ -33,3 +33,7 @@ And those answers can never be wrong.
 When I thought about it, I realized—this really is a “cheating life” (in the best sense).
 If we keep asking the One who sets the questions, we’ll always get the answers.
 It couldn’t be easier or more joyful.
+
+---
+
+[Back to top](#) | [Back to Home](../README.md) 

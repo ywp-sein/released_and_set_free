@@ -18,3 +18,7 @@ Unrepentance is a curse; repentance is a blessing (Acts 3:19).
 When we turn to Him, we are no longer trapped in self-condemnation (Romans 8:1) — the heart stands in awe of His mercy (Psalm 103:10–12), breathes the relief of being forgiven (1 John 1:9), and rejoices in the joy of being restored (Luke 15:7).
 
 </details>
+
+---
+
+[Back to top](#) | [Back to Home](../README.md) 
