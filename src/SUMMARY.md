@@ -2,6 +2,9 @@
 
 [Introduction](README.md)
 
+[About](about.md)
+
+
 # Writings
 - [Pondering](pondering/README.md)
     - [The Power of True Repentance](pondering/01-the-power-of-true-repentance.md)
