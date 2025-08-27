@@ -1,7 +1,7 @@
 [book]
 title = "Released and Set Free"
 authors = ["Yuan-Wei Pi"]
-description = "The example book covers examples."
+description = "Write down His glory."
 
 [rust]
 edition = "2018"
