@@ -6,6 +6,10 @@ description = "Write down His glory."
 [rust]
 edition = "2018"
 
+[output.html]
+default-theme = "navy"
+preferred-dark-theme = "navy"
+
 [output.html.search]
 limit-results = 20
 use-boolean-and = true
