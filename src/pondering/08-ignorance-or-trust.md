@@ -2,7 +2,7 @@
 
 It’s important to reflect on why people choose to present an idea or argument in a certain way. Sometimes it’s not worth engaging in certain conversations. What matters more is discerning whether a person is proactively choosing to remain in ignorance. At that point, communication becomes impossible—we can only wait on God to do His quiet work and keep praying.
 
-The difference between intending to remain in ignorance and simply choosing not to seek an answer right now lies in whether a person is trusting God or not. A growing sense of peace is a good indicator. Intentionally staying in ignorance brings restlessness and anxiety, because the person is aware of their own ignorance. Trusting God to reveal the answer in His time, however, brings increasing peace, because He may first guide the person to understand something else, leading to a deeper grasp of the question they once struggled with.
+The difference between intending to remain in ignorance and simply choosing not to seek an answer right now lies in whether a person is trusting God or not. A growing sense of peace is a good indicator. Intentionally remaining in ignorance brings restlessness and anxiety, because the person is actually aware of their own ignorance and feels compelled to justify themselves in order to appear as though they are not trapped in it. Trusting God to reveal the answer in His time, however, brings increasing peace, because He may first guide the person to understand something else, leading to a deeper grasp of the question they once struggled with.
 
 In all things, trust God and lean not on our own understanding.
 
