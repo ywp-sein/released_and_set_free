@@ -1,21 +1,21 @@
 # The Slender Thread
 
 
-There lies but a slender thread between compromise and judgment. How do we find the courage to speak— not with accusation, but with compassion, not to wound, but to awaken in love?
+There lies but a slender thread between compromise and judgment. <br>How do we find the courage to speak— <br>not with accusation, but with compassion, <br>not to wound, but to awaken in love?
 
-And how do we dare to remain silent— not from apathy or fear, but to offer space for growth, to let time and grace do their quiet work?
+And how do we dare to remain silent— <br>not from apathy or fear, <br>but to offer space for growth, <br>to let time and grace do their quiet work?
 
-For both speech and silence can rise from love—or from evil. The same act may bear different fruit; what matters is the heart from which it flows. 
+For both speech and silence can rise from love—or from evil.<br> The same act may bear different fruit; <br>what matters is the heart from which it flows. 
 
-It begins with intention— and the perseverance to remain faithful to it. Do we yield to the flesh, or surrender to the Spirit?
+It begins with intention— and the perseverance to remain faithful to it. <br>Do we yield to the flesh,<br> or surrender to the Spirit?
 
 The outcome is secondary. For the truest essence is always found in the why behind the deed.
 
-Even when the outcome seems broken in the eyes of men—and enemies— in His eyes, it may still be right and kind. For He does not seek our deeds at all, but hearts that long for Truth.
+Even when the outcome seems broken in the eyes of men—and enemies— in His eyes, it may still be right and kind.<br> For He does not seek our deeds at all,<br> but hearts that long for Truth.
 
 And the ultimate reason we can do good is because Christ lives in us— is because we have the mind of Christ— to will and to do all good things. All goodness flows from Him. And the standard of goodness is His alone. Only He sees the thread between compromise and judgment.
 
-“Facts don’t care about your feelings,” says Ben Shapiro— but Truth does. Truth cares for the heart, and always—always—for the heart.
+“Facts don’t care about your feelings,” says Ben Shapiro— but Truth does. <br>Truth cares for the heart, and always—always—for the heart.
 
 -----
 
