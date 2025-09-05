@@ -10,3 +10,4 @@ These are some writings about pondering.
 - [The Necessity of Right Judgment](06-the-necessity-of-right-judgment.md)
 - [True Peace vs. Temporary Relief](07-true-peace-vs-temporary-relief.md)
 - [Ignorance or Trust?](08-ignorance-or-trust.md)
+- [Unashamed and Free](09-unashamed-and-free.md)

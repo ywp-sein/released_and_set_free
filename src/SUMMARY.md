@@ -15,6 +15,7 @@
     - [The Necessity of Right Judgment](pondering/06-the-necessity-of-right-judgment.md)
     - [True Peace vs. Temporary Relief](pondering/07-true-peace-vs-temporary-relief.md)
     - [Ignorance or Trust?](pondering/08-ignorance-or-trust.md)
+    - [Unashamed and Free](pondering/09-unashamed-and-free.md)
 - [Poem](poem/README.md)
     - [Suffering](poem/01-suffering.md)
     - [Surpassing Expectation](poem/02-surpassing-expectation.md)
