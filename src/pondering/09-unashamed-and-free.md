@@ -6,7 +6,7 @@ they are facing the Mighty God.<br>
 Oops for them, and I don’t feel sorry.<br>
 They are foolishly fighting against my Father in Heaven.
 
-Truly, the battle belongs to the Lord.<br>
+Truly, the battle is the Lord's.<br>
 This is the real peace given to His children—<br>
 a peace no one can counterfeit.
 
@@ -43,7 +43,7 @@ Oops for them, and I don’t feel sorry.<br>
 They are foolishly fighting against my Father in Heaven.<br>
 (2 Chronicles 20:15)
 
-Truly, the battle belongs to the Lord.<br>
+Truly, the battle is the Lord's.<br>
 This is the real peace given to His children—<br>
 a peace no one can counterfeit.<br>
 (John 14:27, Philippians 4:7)
