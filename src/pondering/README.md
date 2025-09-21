@@ -12,3 +12,4 @@ These are some writings about pondering.
 - [Ignorance or Trust?](08-ignorance-or-trust.md)
 - [Unashamed and Free](09-unashamed-and-free.md)
 - [Not Just Church, Not Just Knowledge—But Christ](10-not-just-church-not-just-knowledge-but-Christ.md)
+- [Unique in His Eyes](11-unique-in-his-eyes.md)
