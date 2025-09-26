@@ -18,6 +18,7 @@
     - [Unashamed and Free](pondering/09-unashamed-and-free.md)
     - [Not Just Church, Not Just Knowledge—But Christ](pondering/10-not-just-church-not-just-knowledge-but-Christ.md)
     - [Unique in His Eyes](pondering/11-unique-in-his-eyes.md)
+    - [Beyond Knowing](pondering/12-beyond-knowing.md)
 - [Poem](poem/README.md)
     - [Suffering](poem/01-suffering.md)
     - [Surpassing Expectation](poem/02-surpassing-expectation.md)
