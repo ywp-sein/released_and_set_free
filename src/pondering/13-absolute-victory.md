@@ -12,7 +12,7 @@ Some may warn, “Be careful—don’t underestimate their power.”<br>
 But the truth remains: they are losers, and they will always be losers.
 
 Our stance is secure: the battle belongs to the Lord.<br>
-We trust Him—knowing that even in pain and sorrow, He provides hope, joy, and every good thing.<br>
+We trust Him—knowing that even in pain and sorrow, He provides hope, joy, and goodness for His beloved children.<br>
 God allows trials, but He also gives us direct access to His strength, His hope, and His joy through Jesus Christ, making us stronger.
 
 It is DONE.<br>
@@ -38,7 +38,7 @@ Some may warn, “Be careful—don’t underestimate their power.”<br>
 But the truth remains: they are losers, and they will always be losers. (1 John 3:8)
 
 Our stance is secure: the battle belongs to the Lord. (2 Chronicles 20:15)<br>
-We trust Him—knowing that even in pain and sorrow, He provides hope, joy, and every good thing. (James 1:2-4, Isaiah 41:10)<br>
+We trust Him—knowing that even in pain and sorrow, He provides hope, joy, and goodness for His beloved children. (James 1:2-4, Isaiah 41:10)<br>
 God allows trials, but He also gives us direct access to His strength, His hope, and His joy through Jesus Christ, making us stronger. – (Philippians 4:13, Romans 5:3-5)
 
 It is DONE. (John 19:30)<br>
