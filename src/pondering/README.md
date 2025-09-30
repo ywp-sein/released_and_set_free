@@ -14,3 +14,4 @@ These are some writings about pondering.
 - [Not Just Church, Not Just Knowledge—But Christ](10-not-just-church-not-just-knowledge-but-Christ.md)
 - [Unique in His Eyes](11-unique-in-his-eyes.md)
 - [Beyond Knowing](12-beyond-knowing.md)
+- [Absolute Victory](13-absolute-victory.md)
