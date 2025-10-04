@@ -20,6 +20,8 @@
     - [Unique in His Eyes](pondering/11-unique-in-his-eyes.md)
     - [Beyond Knowing](pondering/12-beyond-knowing.md)
     - [Absolute Victory](pondering/13-absolute-victory.md)
+- [Practice](practice/README.md)
+    - [Every Good Thought is from Him](practice/01-every-good-thought-is-from-him.md)
 - [Poem](poem/README.md)
     - [Suffering](poem/01-suffering.md)
     - [Surpassing Expectation](poem/02-surpassing-expectation.md)
