@@ -15,3 +15,4 @@ These are some writings about pondering.
 - [Unique in His Eyes](11-unique-in-his-eyes.md)
 - [Beyond Knowing](12-beyond-knowing.md)
 - [Absolute Victory](13-absolute-victory.md)
+- [Faith and human choice](14-faith-and-human-choice.md)
