@@ -16,3 +16,4 @@ These are some writings about pondering.
 - [Beyond Knowing](12-beyond-knowing.md)
 - [Absolute Victory](13-absolute-victory.md)
 - [Faith and human choice](14-faith-and-human-choice.md)
+- [Society](15-society.md)
