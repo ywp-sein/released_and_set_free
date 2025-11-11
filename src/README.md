@@ -12,6 +12,6 @@ And indeed, indeed,
 
 I never imagined the day would come when I would pour my thoughts into words, giving voice to the gifts I have received. Yet somehow, it happened—and I can almost hear the Father laughing with joy.
 
-"Write down My glory," He said.
+<!-- "Write down My glory," He said.
 
-"Okay :)", I replied.
+"Okay :)", I replied. -->
