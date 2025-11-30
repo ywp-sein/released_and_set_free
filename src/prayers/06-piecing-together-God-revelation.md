@@ -4,7 +4,7 @@ As we are a church, when different parts of the body gather together, a prayer m
 
 To restore this big picture, discernment from God is needed—to testify whether a puzzle piece is truly from Him. Otherwise, the picture cannot be assembled correctly. And during this process, if worldly thoughts (e.g., comparison or distraction) influence unity, the group will not be able to reach the same picture, because something will be missing or the wrong pieces will be added.
 
-To receive the new pieces—the revelations—the practical way is to not lean on personal understanding when praying (Proverbs 3:5-6). I believe this is what it means to pray in the Spirit (not in a “charismatic-without-seatbelt” way), but to humble oneself and admit, “I don’t know how to pray.” Let the Spirit teach how to pray, trusting that He will put inspiring thoughts into the mind and the right words into the mouth to edify His church. 
+To receive the new pieces—the revelations—the practical way is to not lean on personal understanding when praying. I believe this is what it means to pray in the Spirit (not in a “charismatic-without-seatbelt” way), but to humble oneself and admit, “I don’t know how to pray.” Let the Spirit teach how to pray, trusting that He will put inspiring thoughts into the mind and the right words into the mouth to edify His church. 
 
 
 -----
