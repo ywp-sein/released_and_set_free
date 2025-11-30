@@ -7,3 +7,4 @@ These are some writings about prayers.
 - [To What Extent Should I Keep Asking?](03-to-what-extent-should-i-keep-asking.md)
 - [Pray Without Ceasing](04-pray-without-ceasing.md)
 - [Continuity](05-continuity.md)
+- [Piecing Together God’s Revelation](06-piecing-together-God-revelation.md)

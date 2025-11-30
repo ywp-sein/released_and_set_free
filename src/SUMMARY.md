@@ -36,3 +36,4 @@
     - [To What Extent Should I Keep Asking?](prayers/03-to-what-extent-should-i-keep-asking.md)
     - [Pray Without Ceasing](prayers/04-pray-without-ceasing.md)
     - [Continuity](prayers/05-continuity.md)
+    - [Piecing Together God’s Revelation](prayers/06-piecing-together-God-revelation.md)
