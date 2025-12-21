@@ -17,3 +17,4 @@ These are some writings about pondering.
 - [Absolute Victory](13-absolute-victory.md)
 - [Faith and human choice](14-faith-and-human-choice.md)
 - [Society](15-society.md)
+- [Truth Over Outcomes: Why Results Are Not Proof of Obedience](16-truth-over-outcomes.md)
