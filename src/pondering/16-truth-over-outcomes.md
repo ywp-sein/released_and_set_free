@@ -10,4 +10,4 @@ Therefore, we should not evaluate our faith—or whether we are doing God’s wi
 
 When the storm comes, how a person reacts reveals their faith in God. In their hearts, do they complain about their circumstances, about people, or even about God? Or do they immediately ask the right question: God, what are You teaching me through this now?
 
-We ought to be people who do not subvert logic to emotion. Emotions are reflections of our experiences. They can be important signals that call for awareness—but they should not occupy the position of decision-making authority. To truly protect our emotions, we must cling to the Truth. That is the key to not losing heart. Feelings waver; Truth cannot be shaken.
+We ought to be people who do not subvert logic to emotion. Emotions are reflections of our experiences. They can be important signals that call for awareness—but they should not occupy the position of decision-making authority. To truly protect our emotions, we must cling to the Truth and adjust our feelings according to His living Word. That is the key to not losing heart. Feelings waver; Truth cannot be shaken.
