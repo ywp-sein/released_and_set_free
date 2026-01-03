@@ -10,9 +10,7 @@ Healing doesn’t stop at cleaning and covering. After that, new flesh begins to
 
 Sometimes exposure is unavoidable—like when showering. Water isn’t the enemy, but unprotected water can carry germs into the wound. That is why a waterproof plaster is needed at those times. Protection is intentional and temporary—it lets life go on while the wound heals.
 
-In the same way, inner healing works like this. 
-
-We need strong boundaries to protect our mind and heart. Protecting only the obvious pain is not enough; surrounding thoughts, habits, and influences also need care. Weak boundaries let old toxins creep back in.
+I believe it is similar to the inner healing. We need strong boundaries to protect our mind and heart. Protecting only the obvious pain is not enough; surrounding thoughts, habits, influences or even people also need care. Weak boundaries let old toxins creep back in.
 
 When we face stressful or “wet” environments—conflict, pressure, or misunderstanding—we need extra protection. This could mean staying silent instead of arguing, keeping distance instead of engaging, or seeking support instead of being alone. It is not avoiding or escaping; it is like waterproofing a wound.
 
