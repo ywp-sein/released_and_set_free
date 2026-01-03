@@ -32,6 +32,7 @@
 - [Parables](parables/README.md)
     - [Good Actor](parables/01-good-actor.md)
     - [Copied Homework](parables/02-copied-homework.md)
+    - [Wounds and Deep Healing](parables/03-wounds-and-deep-healing.md)
 - [Prayers](prayers/README.md)
     - [Help My Unbelief](prayers/01-help-my-unbelief.md)
     - [Because You Ask So Much](prayers/02-because-you-ask-so-much.md)
