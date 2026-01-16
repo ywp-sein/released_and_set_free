@@ -29,6 +29,7 @@
     - [Suffering](poem/01-suffering.md)
     - [Surpassing Expectation](poem/02-surpassing-expectation.md)
     - [Grace for the Beloved](poem/03-grace-for-the-beloved.md)
+    - [That's it](poem/04-that's-it.md)
 - [Parables](parables/README.md)
     - [Good Actor](parables/01-good-actor.md)
     - [Copied Homework](parables/02-copied-homework.md)
