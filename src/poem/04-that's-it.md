@@ -16,7 +16,6 @@ I understand: I know more of the language God speaks.<br>
 That’s it.<br>
 
 After all of this,<br>
-through all I have seen, heard and felt,<br>
 I understand: I know God more.<br>
 That’s it—<br>
 and that is everything.<br>
