@@ -18,3 +18,4 @@ These are some writings about pondering.
 - [Faith and human choice](14-faith-and-human-choice.md)
 - [Society](15-society.md)
 - [Truth Over Outcomes: Why Results Are Not Proof of Obedience](16-truth-over-outcomes.md)
+- [Forgiveness and Justice](17-forgiveness-and-justice.md)
