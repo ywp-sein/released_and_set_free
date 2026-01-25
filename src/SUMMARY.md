@@ -31,6 +31,7 @@
     - [Surpassing Expectation](poem/02-surpassing-expectation.md)
     - [Grace for the Beloved](poem/03-grace-for-the-beloved.md)
     - [That's it](poem/04-that's-it.md)
+    - [It is fine](poem/05-it-is-fine.md)
 - [Parables](parables/README.md)
     - [Good Actor](parables/01-good-actor.md)
     - [Copied Homework](parables/02-copied-homework.md)
