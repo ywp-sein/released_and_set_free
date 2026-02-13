@@ -19,3 +19,4 @@ These are some writings about pondering.
 - [Society](15-society.md)
 - [Truth Over Outcomes: Why Results Are Not Proof of Obedience](16-truth-over-outcomes.md)
 - [Forgiveness and Justice](17-forgiveness-and-justice.md)
+- [How Can Feelings Detroy the Mind](18-how-can-feelings-detroy-the-mind.md)
