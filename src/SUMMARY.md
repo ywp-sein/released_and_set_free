@@ -25,6 +25,7 @@
     - [Truth Over Outcomes: Why Results Are Not Proof of Obedience](pondering/16-truth-over-outcomes.md)
     - [Forgiveness and Justice](pondering/17-forgiveness-and-justice.md)
     - [How Can Feelings Detroy the Mind](pondering/18-how-can-feelings-detroy-the-mind.md)
+    - [Law as Mercy, Freedom as Fulfillment](pondering/19-law-as-mercy-freedom-as-fulfillment.md)
 - [Practice](practice/README.md)
     - [Every Good Thought is from Him](practice/01-every-good-thought-is-from-him.md)
 - [Poem](poem/README.md)
