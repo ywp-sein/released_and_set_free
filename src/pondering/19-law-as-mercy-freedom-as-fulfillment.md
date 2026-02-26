@@ -28,7 +28,7 @@ Therefore, what Christians are ultimately fighting for is not an accounting of h
 What, then, is the importance of the law? The law remains necessary when sin is still active in our lives. It serves as a boundary that exposes brokenness and reveals the fractured relationship that leads us to sin. In doing so, the law shows us not merely that we have failed, but that we have not fully believed that Jesus has already set us free from sin. 
 
 
-This also means that when a child of God breaks the law, the first response is not self-compensation or self-correction according to human reasoning. Instead, the response is to come before God in repentance—to admit that God is right and that we are wrong—and to believe that forgiveness has already been given. Through this repentance, the relationship with God is restored. It is this restoration of relationship, and a deeper understanding of redemptive grace, that leads believers into greater peace, freedom, and maturity. 
+This also means that when a child of God breaks the law, the first response is not self-compensation or self-correction according to human reasoning. Instead, the response is to come before God in repentance—to admit that God "is" right and that we "were" wrong—and to believe that forgiveness has already been given. Through this repentance, the relationship with God is restored. It is this restoration of relationship, and a deeper understanding of redemptive grace, that leads believers into greater peace, freedom, and maturity. 
 
 ## Scripture reference
 
