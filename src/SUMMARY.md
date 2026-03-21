@@ -28,6 +28,7 @@
     - [Law as Mercy, Freedom as Fulfillment](pondering/19-law-as-mercy-freedom-as-fulfillment.md)
 - [Practice](practice/README.md)
     - [Every Good Thought is from Him](practice/01-every-good-thought-is-from-him.md)
+    - [Equality in Practice I : Through Exposing Greed](practice/02-equality-in-practice-1.md)
 - [Poem](poem/README.md)
     - [Suffering](poem/01-suffering.md)
     - [Surpassing Expectation](poem/02-surpassing-expectation.md)
