@@ -21,3 +21,4 @@ These are some writings about pondering.
 - [Forgiveness and Justice](17-forgiveness-and-justice.md)
 - [How Can Feelings Detroy the Mind](18-how-can-feelings-detroy-the-mind.md)
 - [Law as Mercy, Freedom as Fulfillment](19-law-as-mercy-freedom-as-fulfillment.md)
+- [Prophecy : “I will”](20-prophecy-i-will.md)
