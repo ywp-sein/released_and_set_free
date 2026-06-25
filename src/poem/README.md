@@ -7,3 +7,4 @@ These are some writings about poem.
 - [Grace for the Beloved](03-grace-for-the-beloved.md)
 - [That's it](04-that's-it.md)
 - [It is fine](05-it-is-fine.md)
+- [The Unveiled Classroom](06-the-unveiled-classroom.md)
