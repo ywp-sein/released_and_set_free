@@ -29,6 +29,7 @@
     - [Prophecy : “I will”](pondering/20-prophecy-i-will.md)
     - [Faith, Stewardship, and the Measure Given by God](pondering/21-faith-stewardship-and-the-measure-given-by-god.md)
     - [When the Heart Turns Outward](pondering/21-when-the-heart-turns-outward.md)
+    - [Charity Born of Love](pondering/22-charity-born-of-love.md)
 - [Practice](practice/README.md)
     - [Every Good Thought is from Him](practice/01-every-good-thought-is-from-him.md)
     - [Equality in Practice I : Through Exposing Greed](practice/02-equality-in-practice-1.md)

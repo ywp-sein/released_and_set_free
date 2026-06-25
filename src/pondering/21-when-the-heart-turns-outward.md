@@ -8,3 +8,7 @@ Over time, this creates a self-reinforcing loop driven by motivated reasoning an
 
 
 A more grounded way of living is when the “heart” is not centered on protecting the self, but oriented outward—toward others, toward reality, and toward what is actually happening outside of us. In that sense, life becomes clearer and easier when attention is less about self-justification and more about genuinely seeing and responding to what is beyond ourselves, ultimately responding to Who is above all.
+
+---
+
+[Back to top](#)
