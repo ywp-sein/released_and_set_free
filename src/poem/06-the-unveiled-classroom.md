@@ -20,10 +20,10 @@ Freedom unlatched the windows and threw them wide;<br>
 refreshing winds swept through the room,<br>
 releasing the people from the suffocating pride.
 
-Truth stood beyond the open windows,<br>
-not as judgment, but as clarity,<br>
-no longer cramming fear onto written pages,<br>
-but enlightening hearts once darkened and hopeless.
+Truth stands beyond the open windows,<br>
+where fear no longer writes upon pages, <br>
+and hearts once darkened and hopeless <br>
+are made new in Light and Love.
 
 
 ---
