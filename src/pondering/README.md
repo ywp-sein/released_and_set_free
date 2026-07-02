@@ -24,3 +24,5 @@ These are some writings about pondering.
 - [Prophecy : “I will”](20-prophecy-i-will.md)
 - [Faith, Stewardship, and the Measure Given by God](21-faith-stewardship-and-the-measure-given-by-god.md)
 - [When the Heart Turns Outward](21-when-the-heart-turns-outward.md)
+- [Charity Born of Love](22-charity-born-of-love.md)
+- [Community-centered "Church?"](23-community-centered-church%3F.md)
