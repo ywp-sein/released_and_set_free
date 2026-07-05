@@ -16,8 +16,8 @@ For if the Gospel is not at the center, there will be shame, unforgiveness, woun
 
 Reference:
 
-Death in the City, by Francis A. Schaeffer 
-The Danger of a Shallow Faith, by A.W. Tozer
+Death in the City, by Francis A. Schaeffer <br>
+The Danger of a Shallow Faith, by A.W. Tozer <br>
 Generous Justice, by Timothy Keller 
 
 ---
