@@ -34,8 +34,11 @@ Our pride may be too loud to silence;<br>
 Our sins may cling too closely to cast aside; <br> 
 
 But to reconcile that distance,<br> 
-Is to deny ourselves, take up our cross, <br> 
-And follow the One who died upon the Cross for us. <br> 
+Is to deny ourselves, <br>
+take up our cross, <br> 
+And follow the One<br>
+who died upon the Cross <br>
+for us. <br> 
 
 ---
 
