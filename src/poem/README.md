@@ -9,3 +9,4 @@ These are some writings about poem.
 - [It is fine](05-it-is-fine.md)
 - [The Unveiled Classroom](06-the-unveiled-classroom.md)
 - [The Distance between Belief and Unbelief](07-the-distance-between-belief-and-unbelief.md)
+- [The Stubborn Heartbeat](08-the-stubborn-heartbeat.md)

@@ -42,6 +42,7 @@
     - [It is fine](poem/05-it-is-fine.md)
     - [The Unveiled Classroom](poem/06-the-unveiled-classroom.md)
     - [The Distance between Belief and Unbelief](poem/07-the-distance-between-belief-and-unbelief.md)
+    - [The Stubborn Heartbeat](poem/08-the-stubborn-heartbeat.md)
 - [Parables](parables/README.md)
     - [Good Actor](parables/01-good-actor.md)
     - [Copied Homework](parables/02-copied-homework.md)
