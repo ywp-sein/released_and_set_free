@@ -26,3 +26,4 @@ These are some writings about pondering.
 - [When the Heart Turns Outward](21-when-the-heart-turns-outward.md)
 - [Charity Born of Love](22-charity-born-of-love.md)
 - [Community-centered "Church?"](23-community-centered-church.md)
+- [Remember What We Have Prayed](24-remember-what-we-have-prayed.md)
