@@ -9,7 +9,7 @@ perseverance applies the torque,<br>
 wisdom directs the path,<br>
 faith unleashes power through action,<br>
 hope drives the momentum forward,<br>
-and peace becomes the harmony of movement.
+and peace conducts the harmony of movement.
 
 Anchored by love,<br>
 the mountain does not simply stand before us—<br>
