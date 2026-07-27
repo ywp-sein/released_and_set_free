@@ -8,7 +8,7 @@ time extends the reach,<br>
 perseverance applies the torque,<br>
 wisdom directs the path,<br>
 faith unleashes power through action,<br>
-hope drives the momentum forward.
+hope drives the momentum forward,<br>
 and peace becomes the harmony of movement.
 
 Anchored by love,<br>
