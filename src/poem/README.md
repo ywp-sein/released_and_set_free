@@ -10,3 +10,4 @@ These are some writings about poem.
 - [The Unveiled Classroom](06-the-unveiled-classroom.md)
 - [The Distance between Belief and Unbelief](07-the-distance-between-belief-and-unbelief.md)
 - [The Stubborn Heartbeat](08-the-stubborn-heartbeat.md)
+- [The Pivot](09-the-pivot.md)
