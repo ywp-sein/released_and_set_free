@@ -5,10 +5,11 @@ Love is the pivot where every burden loses its power.
 In the moment of alignment—<br>
 endurance rises with strength,<br>
 time extends the reach,<br>
-patience applies the torque,<br>
+perseverance applies the torque,<br>
 wisdom directs the path,<br>
 faith unleashes power through action,<br>
-and hope sustains the momentum forward.
+hope drives the momentum forward.
+and peace becomes the harmony of movement.
 
 Anchored by love,<br>
 the mountain does not simply stand before us—<br>
