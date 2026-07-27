@@ -1,14 +1,14 @@
 # The Pivot
 
-Love is the pivot upon which every burden turns.
+Love is the pivot where every burden loses its power.
 
 In the moment of alignment—<br>
-endurance meets resistance,<br>
-time extends the lever,<br>
+endurance rises with strength,<br>
+time extends the reach,<br>
 patience applies the torque,<br>
-wisdom guides the motion,<br>
-faith releases its power through action,<br>
-and hope drives the momentum forward.
+wisdom directs the path,<br>
+faith unleashes power through action,<br>
+and hope sustains the momentum forward.
 
 Anchored by love,<br>
 the mountain does not simply stand before us—<br>
