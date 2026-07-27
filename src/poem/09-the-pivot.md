@@ -12,8 +12,7 @@ hope drives the momentum forward,<br>
 and peace conducts the harmony of movement.
 
 Anchored by love,<br>
-the mountain does not simply stand before us—<br>
-it begins to move,<br>
+the mountain begins to move,<br>
 and the impossible begins to turn.
 
 ---
