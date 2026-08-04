@@ -1,6 +1,6 @@
 # No Boundaries for Good
 
-When I was reading Nehemiah 5 with my friends, one detail stood out to me. Nehemiah says that although he served as governor, he did not receive the governor's allowance. Yet he regularly hosted many guests at his table, including people from surrounding nations, providing generous feasts for them.
+When I was reading Nehemiah 5 with my friends, one detail stood out to me. Nehemiah said that although he served as governor, he did not receive the governor's allowance. Yet he regularly hosted many guests at his table, including people from surrounding nations, providing generous feasts for them.
 
 This raised a question in my heart: If Nehemiah had no income from his position, where did all of this provision come from?
 
@@ -16,7 +16,7 @@ I find this incredibly beautiful.
 
 This also changed the way I think about God's commandments. The Bible contains many instructions about what we should not do. At first glance, these can seem like restrictions. But I now see them as God's grace. They are loving boundaries that keep us from falling into evil, not limits on the good that God wants to accomplish through us.
 
-In Christ, however, goodness itself has no boundary. As Paul teaches in Galatians 5, we are called into freedom—a freedom not to indulge the flesh, but to walk by the Spirit. The possibilities of a life led by the Spirit are not confined to a list of rules. God's goodness is infinitely creative.
+In Christ, however, goodness itself has no boundary. As Paul teaches in Galatians 5, we are called into freedom—a freedom not to indulge the flesh, but to walk with the Spirit. The possibilities of a life led by the Spirit are not confined to a list of rules. God's goodness is infinitely creative.
 
 This reminds me of the closing words of John's Gospel. John says that if everything Jesus did were written down, "the world itself could not contain the books that would be written." That verse paints a breathtaking picture of the abundance of Christ's life and work.
 
@@ -28,16 +28,16 @@ Truly, He is so great.
 
 Reference:<br>
 Nehemiah 5, John 21:25, Galatians 5<br>
-Song: Look To The Lamb by Jesus Culture, Lindy Cofer, Bryan & Katie Torwalt<br>
 
-"Look to the Lamb <br>
-See the Son of God, the Savior crucified <br>
-See the crown of thorns, the nails, His wounded side <br>
-He is worthy <br>
-Look to the Lamb<br>
-See the One who is forever glorified<br>
-There is love and there is fire in His eyes<br>
-He is worthy"
+Song: Look To The Lamb by Jesus Culture, Lindy Cofer, Bryan & Katie Torwalt<br>
+*"...Look to the Lamb* <br>
+*See the Son of God, the Savior crucified* <br>
+*See the crown of thorns, the nails, His wounded side* <br>
+*He is worthy* <br>
+*Look to the Lamb* <br>
+*See the One who is forever glorified* <br>
+*There is love and there is fire in His eyes* <br>
+*He is worthy..."*
 
 ---
 
