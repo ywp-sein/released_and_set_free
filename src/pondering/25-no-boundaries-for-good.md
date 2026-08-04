@@ -28,7 +28,8 @@ Truly, He is so great.
 
 Reference:<br>
 Nehemiah 5, John 21:25, Galatians 5<br>
-Song: Look To The Lamb by Jesus Culture, Lindy Cofer, Bryan & Katie Torwalt
+Song: Look To The Lamb by Jesus Culture, Lindy Cofer, Bryan & Katie Torwalt<br>
+
 "Look to the Lamb <br>
 See the Son of God, the Savior crucified <br>
 See the crown of thorns, the nails, His wounded side <br>
