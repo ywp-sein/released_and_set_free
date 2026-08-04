@@ -27,3 +27,4 @@ These are some writings about pondering.
 - [Charity Born of Love](22-charity-born-of-love.md)
 - [Community-centered "Church?"](23-community-centered-church.md)
 - [Remember What We Have Prayed](24-remember-what-we-have-prayed.md)
+- [No Boundaries for Good](25-no-boundaries-for-good.md)

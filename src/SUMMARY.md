@@ -32,6 +32,7 @@
     - [Charity Born of Love](pondering/22-charity-born-of-love.md)
     - [Community-centered "Church?"](pondering/23-community-centered-church.md)
     - [Remember What We Have Prayed](pondering/24-remember-what-we-have-prayed.md)
+    - [No Boundaries for Good](pondering/25-no-boundaries-for-good.md)
 - [Practice](practice/README.md)
     - [Every Good Thought is from Him](practice/01-every-good-thought-is-from-him.md)
     - [Equality in Practice I : Through Exposing Greed](practice/02-equality-in-practice-1.md)
