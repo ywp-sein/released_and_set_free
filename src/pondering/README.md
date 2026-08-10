@@ -28,3 +28,4 @@ These are some writings about pondering.
 - [Community-centered "Church?"](24-community-centered-church.md)
 - [Remember What We Have Prayed](25-remember-what-we-have-prayed.md)
 - [No Boundaries for Good](26-no-boundaries-for-good.md)
+- [Asking for Signs?](27-asking-for-signs.md)
