@@ -47,6 +47,7 @@
     - [The Distance between Belief and Unbelief](poem/07-the-distance-between-belief-and-unbelief.md)
     - [The Stubborn Heartbeat](poem/08-the-stubborn-heartbeat.md)
     - [The Pivot](poem/09-the-pivot.md)
+    - [Presence and Absence](poem/10-presence-and-absence.md)
 - [Parables](parables/README.md)
     - [Good Actor](parables/01-good-actor.md)
     - [Copied Homework](parables/02-copied-homework.md)

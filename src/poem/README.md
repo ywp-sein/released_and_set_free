@@ -11,3 +11,4 @@ These are some writings about poem.
 - [The Distance between Belief and Unbelief](07-the-distance-between-belief-and-unbelief.md)
 - [The Stubborn Heartbeat](08-the-stubborn-heartbeat.md)
 - [The Pivot](09-the-pivot.md)
+- [Presence and Absence](10-presence-and-absence.md)
