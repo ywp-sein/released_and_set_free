@@ -29,3 +29,4 @@ These are some writings about pondering.
 - [Remember What We Have Prayed](25-remember-what-we-have-prayed.md)
 - [No Boundaries for Good](26-no-boundaries-for-good.md)
 - [Asking for Signs?](27-asking-for-signs.md)
+- [Commitment to the Truth: Why Is There Still Struggle?](28-commitment-to-the-truth.md)
