@@ -12,3 +12,4 @@ These are some writings about poem.
 - [The Stubborn Heartbeat](08-the-stubborn-heartbeat.md)
 - [The Pivot](09-the-pivot.md)
 - [Presence and Absence](10-presence-and-absence.md)
+- [Flame of Joy](11-flame-of-joy.md)
