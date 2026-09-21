@@ -30,3 +30,4 @@ These are some writings about pondering.
 - [No Boundaries for Good](26-no-boundaries-for-good.md)
 - [Asking for Signs?](27-asking-for-signs.md)
 - [Commitment to the Truth: Why Is There Still Struggle?](28-commitment-to-the-truth.md)
+- [Serving](29-serving.md)
