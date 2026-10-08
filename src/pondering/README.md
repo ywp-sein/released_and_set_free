@@ -31,3 +31,4 @@ These are some writings about pondering.
 - [Asking for Signs?](27-asking-for-signs.md)
 - [Commitment to the Truth: Why Is There Still Struggle?](28-commitment-to-the-truth.md)
 - [Serving](29-serving.md)
+- [When Fear No Longer Rules](30-when-fear-no-longer-rules.md)
