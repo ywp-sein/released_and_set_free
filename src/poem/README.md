@@ -13,3 +13,4 @@ These are some writings about poem.
 - [The Pivot](09-the-pivot.md)
 - [Presence and Absence](10-presence-and-absence.md)
 - [Flame of Joy](11-flame-of-joy.md)
+- [From Pride to Peace](12-from-pride-to-peace.md)
