@@ -1,15 +1,15 @@
 # From Pride to Peace
 
-Give thanks genuinely.
+Give thanks genuinely.<br>
 Pride perishes quietly.
 
-Worship begins wholeheartedly.
+Worship begins wholeheartedly.<br>
 Fear flees swiftly.
 
-Hearts open willingly.
+Hearts open willingly.<br>
 Grace flows abundantly.
 
-His presence descends gently.
+His presence descends gently.<br>
 Peace emerges marvelously.
 
 ---
