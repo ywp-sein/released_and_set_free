@@ -37,6 +37,7 @@
     - [Commitment to the Truth: Why Is There Still Struggle?](pondering/28-commitment-to-the-truth.md)
     - [Serving](pondering/29-serving.md)
     - [When Fear No Longer Rules](pondering/30-when-fear-no-longer-rules.md)
+    - [Between the Absolute and the Relative](pondering/31-between-the-absolute-and-the-relative.md)
 - [Practice](practice/README.md)
     - [Every Good Thought is from Him](practice/01-every-good-thought-is-from-him.md)
     - [Equality in Practice I : Through Exposing Greed](practice/02-equality-in-practice-1.md)

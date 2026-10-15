@@ -32,3 +32,4 @@ These are some writings about pondering.
 - [Commitment to the Truth: Why Is There Still Struggle?](28-commitment-to-the-truth.md)
 - [Serving](29-serving.md)
 - [When Fear No Longer Rules](30-when-fear-no-longer-rules.md)
+- [Between the Absolute and the Relative](31-between-the-absolute-and-the-relative.md)
